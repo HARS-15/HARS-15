@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Harsha Vardhan Diyyala.
+- 👀 I’m interested in dealing with data.
+- 🌱 I’m currently pursuing B.Tech 2nd year.
+- 💞️ I’m much interested to work along with the most reputations companies in order to enhance my skills and also work collabrativly for company's growth.
+- 📫 You can approach me via linkedin profile "www.linkedin.com/in/diyyala-harsha-vardhan-b574ba21b". 
